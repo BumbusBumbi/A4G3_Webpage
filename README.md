@@ -6,7 +6,7 @@ Lars Swenson - larsswenson - lars.swenson@seattlecolleges.edu
 
 Wei Zenk - way9z - weizenk7788@gmail.com
 
-Hannah Angely -  - 
+Hannah Angely - hannah-2801 - hannah.j.angely@gmail.com
 
 Project Requirements
 
